@@ -8,4 +8,4 @@
 
 See screen shot below for additional results:
 
-![](https://i.imgur.com/5t5aReY.png)
+![](https://i.imgur.com/4H5kh1x.png)
